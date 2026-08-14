@@ -21,7 +21,7 @@ With all that in mind, let's me introduce you to some of the finest albums in my
 > Personal Favorites:
 > 1. [Takamachi Walk](#takamachi-walk)
 > 2. [Undead Corporation](#undead-corperation)
-> 3. [Demetori](#demetori)
+> 3. [Foreground Eclipse](#)
 
 ## YaboiMatoi & RichaadEB
 
